@@ -1,0 +1,2 @@
+# mustafa
+Ney anlamadim
